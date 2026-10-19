@@ -1,4 +1,5 @@
 # MyScratch
 Updated.
 Try again and again.
-Trial and Error
+Trial and Error.
+Long Life Leraner.
