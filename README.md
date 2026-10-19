@@ -1,2 +1,4 @@
 # MyScratch
-Updated
+Updated.
+Try again and again.
+Trial and Error
